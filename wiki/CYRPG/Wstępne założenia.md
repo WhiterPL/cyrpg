@@ -5,3 +5,5 @@
 - W świecie wymyślonym przez Szymona
 - Ekwiupnek, rzeczy wpływają na wybory
 - [x] Kiss boyfriend :3
+
+
