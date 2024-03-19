@@ -4,3 +4,4 @@
 - Pikselowa, mało wymagająca grafika
 - W świecie wymyślonym przez Szymona
 - Ekwiupnek, rzeczy wpływają na wybory
+- Kiss boyfriend :3
